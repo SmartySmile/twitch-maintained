@@ -34,4 +34,4 @@ For more Information contacting me is possible at: sarsmas@ahangari.de
   
   Sarsmas Ahangari
   s.Ahangari - SERVICE AHANGARI
-  CGN|NW|DE|EU Guidlines Inclusive!
+  CGN|NW|DE|EU Guidelines Inclusive!
